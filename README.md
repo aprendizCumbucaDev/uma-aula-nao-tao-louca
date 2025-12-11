@@ -1,3 +1,3 @@
 # Uma Aula Não Tão Louca
 
-Poxa, que pena 🫠
+Poxa, que pena 🫠 Mas tá bom também, é o quê tem para hoje...
